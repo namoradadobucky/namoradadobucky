@@ -1,6 +1,6 @@
 ### Bem vindos ao meu perfil! 💋💘
 
-Meu nome é Fernanda Castro
+Meu nome é **Fernanda Castro**
 
 - Estou estudando na Alura
 
